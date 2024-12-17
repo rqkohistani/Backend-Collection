@@ -32,7 +32,7 @@ As a **software engineer**, I believe in building **organized, modular, and main
 
 ### 🔗 Professional Experience  
 
-For a detailed overview of my **professional experience**, skills, and achievements, please visit my [**LinkedIn profile**](https://www.linkedin.com/in/rqkohistani/).  
+For a detailed overview of my **professional experience**, skills, and achievements, please visit my [**LinkedIn profile**](https://www.linkedin.com/in/rashed-qazizada-1b64b68a/).  
 
 Feel free to connect for **collaborations, discussions, or opportunities** in software engineering.
 
